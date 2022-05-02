@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+💞 Passionate about open, decentralized protocols and their potential to empower individuals and serve the greater good.
+
+🔭 Devoting my time to exploring possibilities in web3. 
+
+☎ Feel free to drop me a line on twitter or telegram: @danceratopz.
+
 <!--
 **danceratopz/danceratopz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

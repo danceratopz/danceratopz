@@ -2,7 +2,7 @@
 
 💞 Passionate about open, decentralized protocols and their potential to empower individuals and serve the greater good.
 
-🔭 Devoting my time to exploring possibilities in web3. 
+🔭 Devoting my time to exploring web3 and testing ethereum 🧪
 
 ☎ Feel free to drop me a line on twitter or telegram: @danceratopz.
 
